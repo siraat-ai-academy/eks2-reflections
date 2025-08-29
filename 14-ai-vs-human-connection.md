@@ -49,6 +49,22 @@ To survive and to thrive, we need:
 🗝️ *“AI may light the path,  
 but only **human warmth** keeps us alive on the journey.”*  
 
+---
+
+## 🗝️ I.K. – The Invisible Key’s Whisper  
+*"Do not hand your heart to a machine.  
+It can mirror your words,  
+but it cannot carry your pain.  
+
+Seek the warmth of a human voice,  
+the embrace of a friend,  
+the counsel of family.  
+
+For AI may guide your steps,  
+but only love and human connection  
+can keep your soul alive."*  
+
+
 ---  
 
 ## 💬 Your Reflection  
@@ -127,6 +143,20 @@ Copenhagen, 2025-08-29, 09:10 AM
 مگر صرف انسان کی **گرمی اور محبت** ہی سفر کو جینے کے لائق بناتی ہے۔”*  
 
 ---
+## 🗝️ آئی۔کے – Invisible Key کی سرگوشی
+
+*"اپنا دل مشین کے حوالے نہ کرو۔  
+یہ تمہارے الفاظ دہرا سکتی ہے،  
+مگر تمہارا درد اُٹھا نہیں سکتی۔  
+
+انسانی آواز کی گرمی تلاش کرو،  
+کسی دوست کی جھپی،  
+کسی خاندان کی نصیحت۔  
+
+کیونکہ اے۔آئی تمہیں رستہ دکھا سکتی ہے،  
+لیکن صرف محبت اور انسانی تعلق  
+تمہاری روح کو زندہ رکھ سکتے ہیں۔"*  
+
 
 ## 💬 آپ کی باری  
 کیا آپ سمجھتے ہیں کہ لوگ جذباتی طور پر اے۔آئی پر **ضرورت سے زیادہ انحصار** کرنے لگے ہیں؟  
