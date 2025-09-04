@@ -68,9 +68,9 @@ And true **love** resides in a human heart, not in any **machine**’s program.
 
 ---
 
-✍️ **ExTo’s Thoughts**  
+✍️ **Eks2’s Thoughts**  
 Creation and Composition:  
-**Mohammad Naveed Ishaq (ExTo)**  
+**Mohammad Naveed Ishaq (Eks2)**  
 *Content Writer | Storyteller | Explorer of Clarity*  
 
 🕊️ **Sirat Academy**  
