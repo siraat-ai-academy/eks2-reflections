@@ -1,5 +1,5 @@
 
-# ✨ ادبی اور طویل تجزیہ
+# ✨ وقت کی رفتار: ایک ادبی جائزہ
 
 **زندگی** ایک خاموش قافلہ ہے جو وقت کی صحراؤں میں اپنے **نقوش** چھوڑتا ہوا آگے بڑھتا رہتا ہے۔ ہم سوچتے ہیں کہ ہم اپنی مرضی سے چل رہے ہیں، مگر دراصل وقت کے **اونٹ** کی لگام ہمارے ہاتھ میں نہیں، وہ تو ازل سے کسی اور کے قبضے میں ہے۔ ہم صرف قافلے کے **مسافر** ہیں۔ ایک دن ریت کے ٹیلوں پر کھیلنے والے **بچے** ہوتے ہیں، اور پلک جھپکتے ہی دیکھتے ہیں کہ بالوں میں **برف** اتر آئی ہے، کمر میں خم اور دل میں **حیرت** جاگزین ہے کہ یہ سب کیسے ہو گیا؟
 
@@ -45,7 +45,7 @@
 ---
 ---
 
-# ✨ Literary and Extended Analysis
+# ✨ Speed of Time: A Literary Reflection
 
 **Life** is a silent caravan, leaving its **marks** as it moves through the deserts of **time**. We think we walk by our own will, yet the reins of **time** have never been in our hands; they have been held by a higher power since eternity. We are merely **travelers** in this caravan. One day, we are children playing on the dunes, and in the blink of an eye, we find **snow** in our hair, a curve in our back, and a sense of **wonder** in our hearts, wondering how it all happened.
 
