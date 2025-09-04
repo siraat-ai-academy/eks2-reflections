@@ -45,7 +45,7 @@
 ---
 ---
 
-### ✨ Literary and Extended Analysis
+# ✨ Literary and Extended Analysis
 
 **Life** is a silent caravan, leaving its **marks** as it moves through the deserts of **time**. We think we walk by our own will, yet the reins of **time** have never been in our hands; they have been held by a higher power since eternity. We are merely **travelers** in this caravan. One day, we are children playing on the dunes, and in the blink of an eye, we find **snow** in our hair, a curve in our back, and a sense of **wonder** in our hearts, wondering how it all happened.
 
