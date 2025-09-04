@@ -43,3 +43,49 @@
 وقت: ۱۲:۰۰ دوپہر  
 
 ---
+---
+
+### ✨ Literary and Extended Analysis
+
+**Life** is a silent caravan, leaving its **marks** as it moves through the deserts of **time**. We think we walk by our own will, yet the reins of **time** have never been in our hands; they have been held by a higher power since eternity. We are merely **travelers** in this caravan. One day, we are children playing on the dunes, and in the blink of an eye, we find **snow** in our hair, a curve in our back, and a sense of **wonder** in our hearts, wondering how it all happened.
+
+Standing at fifty-five, looking back, we remember a world of **simplicity**, **peace**, and a flow of **love** that filled every heart. Back then, the “**latest**” marvel was the **typewriter**, and people took pride in its clacking keys. Seeing a **printing press** felt like witnessing the greatest **magic** of the world. **Letters** carried a scent, and each text contained the heartbeat of the writer.
+
+Then one day, the **computer** appeared. That day was both a day of **joy** and an unintentional moment of **separation**. Joy, because life’s tasks became easier; separation, because the heart’s world slowly sank into artificial lights. Tasks that took **years** were completed in **months**, months condensed into **weeks**, weeks into **days**, and days into **hours**. Convenience increased, yet the **flavor of time** turned bitter, as if a drop of **poison** had mixed into a sweet fruit.
+
+**Speed** lightened life but hollowed out its roots of **peace**. Now a child’s toy is not a doll or a ball, but a **mobile phone**. It may recognize the touch of **mother** late, but it smiles at the **screen** at first glance. **Relationships** receded into the background, and **tools of life** took center stage. The question is not how this happened, but what we **lost** and gained in this **race**.
+
+We say that **technology** has shortened **distances**. True, send a **message** today, and someone on the other side of the world responds in moments. Yet it is also true that the person sitting next to us has become the farthest **away**. Our eyes follow their **mobile screen** rather than their **face**. This is both **closeness** and **estrangement**.
+
+**Humankind** believed that **machines** would give them time, but machines **stole** it instead. Now humans have everything but no **leisure**. They possess limitless **information**, yet lack **inner peace**. They peer beyond the **sky**, yet fail to see the **desolation** within themselves.
+
+What is true **progress**? Is it merely **speed**, or is it when humans maintain **humanity** in the depths of their hearts while enjoying the conveniences of life? Perhaps progress will come when humans return to **love**, when a **mother**’s embrace outweighs the **mobile screen**, and when we hear the **heartbeat** of a **heart** instead of the sound of a **machine**.
+
+The journey of **life** has carried us far. Today, we stand amazed, pondering what has become of it all. Perhaps **time** wishes to remind us: 
+The true **smile** is on a face, not an emoji.  
+The true **scent** is in the pages of a book, not on a digital screen.  
+And true **love** resides in a human heart, not in any **machine**’s program.
+
+---
+
+✍️ **ExTo’s Thoughts**  
+Creation and Composition:  
+**Mohammad Naveed Ishaq (ExTo)**  
+*Content Writer | Storyteller | Explorer of Clarity*  
+
+🕊️ **Sirat Academy**  
+*"Straight Path — Empowering minds with clarity and illuminating the journey with purpose."*
+
+---
+
+# 📂 File Name  
+`Speed-of-Time.md`  
+
+📅 **Created at:**  
+Zaragoza, Spain  04-09-2025  
+Time: 12:00 PM
+
+---
+
+
+
