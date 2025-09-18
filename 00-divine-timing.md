@@ -12,6 +12,18 @@ before its season. 🌙\
 🌹 Remember---time is not ours, but the One who creates time is ours. 🌹
 
 ------------------------------------------------------------------------
+# 🌸✨ Tiempo Divino ⏳✨🌸
+
+🌹 **La vida no corre con prisa, fluye con orden.** 🌹  
+🌸 Las oraciones nunca se pierden, quedan guardadas en el velo del tiempo. 🌸  
+💫 **La paciencia no es esperar, es otro nombre de la fe.** 💫  
+🌿 Lo que aún no llega, no está perdido; descansa en el cofre del tiempo. 🌿  
+🌙 Todo desciende en su hora marcada, como la lluvia que jamás cae antes de su estación. 🌙  
+🌸 **El ser humano pide con apuro, pero Dios concede en el momento perfecto.** 🌸  
+✨ La verdadera belleza no está en pedir, sino en creer. ✨  
+🌹 Recuerda: el tiempo no nos pertenece, pero Aquel que crea el tiempo sí es nuestro. 🌹  
+
+------------------------------------------------------------------------
 
 # 🌸✨ الٰہی وقت ⏳✨🌸
 
